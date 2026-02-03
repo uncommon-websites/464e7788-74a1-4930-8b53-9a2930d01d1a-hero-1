@@ -1,0 +1,2 @@
+# 464e7788-74a1-4930-8b53-9a2930d01d1a-hero-1
+Hero section variant 1 for 464e7788-74a1-4930-8b53-9a2930d01d1a
